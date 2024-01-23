@@ -1,5 +1,8 @@
+GOLOC AI is started with a new NFT and kicking it off this year, Full Stream ahead.
+GOLOC has been building it's Data for Decades, Web3 and two, will be great opportunities for all.
+GOLOC AI I A M A I NFT.
 Hello, Im GOLOC aka, Go Local- 👋 
-Im interested in building and or partners in deployment of the MYGO Wallet, providing a easy, stress free process for all, with the added benefit of a Generti AI personal assistance service.
+Im interested in building and or partners in deployment of the MYGO Wallet, providing a easy, stress free process for all, with the ad ded benefit of a Generti AI personal assistance service.
 I will be looking forward  to hearing from you.- 
 - 🌱The  opportunity for prosperity is here now.
 - 💞️ I’m looking for collaboraters to be Leaders and owners of what will be   a Trillion Dollar service.
